@@ -13,4 +13,4 @@ Dolan, F. *Banjo Playing*
 
 **Week 4**
 
-FINAL EXAM
+NEW FINAL EXAM: SING!
